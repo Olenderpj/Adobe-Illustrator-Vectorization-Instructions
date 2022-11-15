@@ -1,1 +1,1 @@
-# Adobe-Illustrator-Vectorization-Instructions
+# Adobe Illustrator Vectorization Instructions
